@@ -1,0 +1,1 @@
+AromaSensei is a fragrance-focused platform offering useful information about perfumes, scents, fragrance notes, and related lifestyle topics. The [AromaSensei](https://aromasensei.com/) platform can help readers explore different fragrance profiles, understand scent characteristics, and discover practical insights for choosing perfumes that match their preferences.
